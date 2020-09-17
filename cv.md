@@ -21,13 +21,13 @@ April 2009 - present Economist
 JSC Belagroprombank, Grodno
 
 ## Education
-2004 - 2009 
+2004 - 2009
 Finance, Finance and Credit faculty,
 5th year study
 Yanka Kupala State University of Grodno, Belarus
 
 ## Additional Education
-February 2020 - March 2020 
+February 2020 - March 2020
 IT-Academy courses, Grodno, Belarus:
 - Computer Science
 - Web-technologies
