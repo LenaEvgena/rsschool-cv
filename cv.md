@@ -39,3 +39,6 @@ Belarussian — native
 English — working knowledge
 Polish — working knowledge
 
+### Contacts
+**Phone:** +375295872489
+**E-mail:** helen151204@gmail.com
